@@ -1,4 +1,4 @@
-#  
+#  blue lock rivals underground Script is the best blue lock rivals Script, featuring private server access and instant win. Safe and powerful for all
 
 
 
